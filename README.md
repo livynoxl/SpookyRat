@@ -8,4 +8,4 @@ Fud Rat Includes RootKit.
 
 ## To contact and purchase the product
 - < instagram : @p2dk_ >
-- < Discord : @08jk >
+- < Discord : @.v9z >
