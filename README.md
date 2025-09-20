@@ -7,5 +7,5 @@ Fud Rat Includes RootKit.
 -------------------------------------------------
 
 ## To contact and purchase the product
-- < instagram : @clyverit >
-- < Discord : @.v9z >
+- < instagram : @drugpoie >
+- < Discord : @polimaldrug >
